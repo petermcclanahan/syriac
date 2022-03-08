@@ -1,0 +1,2 @@
+# syriac
+General Syriac studying 
